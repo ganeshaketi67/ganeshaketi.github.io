@@ -1,1 +1,0 @@
-# ganeshaketi.github.io
